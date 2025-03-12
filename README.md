@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @SKYLLERBOTZ
-- 👀 I’m interested in tobrut
+- 👋 Hi, I’m Hikaaa
+- 👀 I’m interested in tobrut 
 - 🌱 I’m currently learning to be the best
-- 💞️ I’m looking to collaborate on saha wehhh
+- 💞️ I’m looking to collaborate with anyone to improve my skills
 - 📫 How to reach me? @Hikabaik4@gmail.com
 
 <!---
